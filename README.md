@@ -1,5 +1,6 @@
 ## **power**##
-**growth mindset** **:**
+**growth mindset** **:**evolution** and **expansion**
+
 
 
 
